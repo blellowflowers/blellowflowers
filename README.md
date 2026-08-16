@@ -1,16 +1,39 @@
-## Hi there 👋
+<div align="center">
+  <img src="https://magma.com/api/message/file/6a810e4503dcd194af674a4b"
+</div>
 
-<!--
-**blellowflowers/blellowflowers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  <p align="center">
+  kaiser , kai , oppie
+</p>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ 
+  <p align="center">
+c*h always enc
+</p>
+ 
+ <p align="center">
+sign my ata
+</p>
+ 
+ 
+ 
+ <details>
+  <summary>  𑣲.</summary>
+@Gamblersi as the Chance enthusiast   
+                       
+@lostcxuse as the Nezoshoki, Sharpness, 2swag and Ashton, Boomie, ect enthusiast    
+        
+@totaldramas as the Tree/Treemarker enthusiast and yume👀👀👀👀    
+        
+@unpleasant-like as the Unpleasant enthusiast        
+         
+@xathetic as the Soap enthusiast    
+        
+burp                             
+</details>
+ <details>
+  <summary>  𑣲.</summary>
+honorary host addon @silly-dotcom as the Oppenheimer enthusiast      
+            
+burp                             
+</details>
